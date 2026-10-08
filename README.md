@@ -4,4 +4,6 @@ SUMANKOMARLAADINARAYANA-GreatLearning-OpenSourceInformation-IndiaAsiaInternation
 
 https://www.mygreatlearning.com/
 
-https://www.greatlakes.org.in/
+https://www.greatlakes.edu.in/
+
+http://walshcollege.edu/
